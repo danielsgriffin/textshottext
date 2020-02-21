@@ -1,3 +1,5 @@
+# [Link to "human intervention remains necessary" tweet](https://twitter.com/danielsgriffin/status/1230950925331619840)
+
 <span class="citation" data-cites="edwards2010vast">Edwards (2010, p.
 267)</span>:
 
